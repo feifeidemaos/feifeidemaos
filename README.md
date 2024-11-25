@@ -7,7 +7,7 @@
 [![IMG-20241125-114127.jpg](https://i.postimg.cc/FzNXKm6P/IMG-20241125-114127.jpg)](https://dsdl.live/share.html?channel=s3)
 
 #### 袋鼠加速器官网的创新数据加密和传输技术，使您完美避开封锁，无限制访问全球网站、app及其他网络服务。下载袋鼠加速器，马上解锁谷歌、油管、脸书、推特、奈飞等主流网站。
-[![IMG-20241125-114212.jpg](https://i.postimg.cc/Bbp9Lk9J/IMG-20241125-114212.jpg)](https://postimg.cc/wR1bnWjr)
+[![IMG-20241125-114212.jpg](https://i.postimg.cc/Bbp9Lk9J/IMG-20241125-114212.jpg)](https://dsdl.live/share.html?channel=s3)
 
 #### 袋鼠加速器采用最前沿的数据加密技术，使您全面掌控您的网络隐私与安全。
 
