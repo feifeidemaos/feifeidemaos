@@ -1,6 +1,6 @@
 # 袋鼠加速器
 
-[点击进入袋鼠加速器官网](https://dsdl.live/share.html?channel=s3)
+⚡[点击进入袋鼠加速器官网](https://dsdl.live/share.html?channel=s3)
 
 #### 袋鼠加速器一键解锁全球网络, 无限制访问注册一个账号,手机,电脑全端互通全程数据加密, 无痕访问,安全无忧全球节点无限速,1080-4k流畅观看解锁奈飞、Tiktok等知名流媒体
 
