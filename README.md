@@ -3,11 +3,9 @@
 <html>
 <head>
 <meta charset="utf-8">
-<meta name="description" content="袋鼠加速器官网">
-<meta name="description1" content="袋鼠VPN官网">
-<meta name="description2" content="袋鼠梯子">
-<meta name="description3" content="付费梯子推荐">
-
+<meta name="description" content="袋鼠加速器  付费梯子推荐 袋鼠VPN官网 袋鼠加速器官网">
+<meta name="keywords" content="袋鼠加速器, 付费梯子推荐, 袋鼠加速器官网, 袋鼠VPN官网, 加速器推荐">
+<meta name="author" content="袋鼠加速器官网">
 </head>
 </html>
 
