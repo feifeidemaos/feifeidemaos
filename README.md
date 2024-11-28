@@ -1,5 +1,16 @@
 # 袋鼠加速器
 
+<html>
+<head>
+<meta charset="utf-8">
+<meta name="description" content="袋鼠加速器官网">
+<meta name="description1" content="袋鼠VPN官网">
+<meta name="description2" content="袋鼠梯子">
+<meta name="description3" content="付费梯子推荐">
+
+</head>
+</html>
+
 ⚡[点击进入袋鼠加速器官网](https://dsdl.live/share.html?channel=s3)
 
 ⚡[点击进入网盘下载](https://pan.huang1111.cn/s/vVqb9FE)
