@@ -9,7 +9,7 @@
 
 # 袋鼠加速器
 
-⚡[点击进入袋鼠加速器官网](https://dsdl.live/share.html?channel=s3)
+⚡[点击进入袋鼠加速器官网](https://dsdl.fun/share.html?channel=s3)
 
 ⚡[点击进入网盘下载](https://pan.huang1111.cn/s/vVqb9FE)
 
